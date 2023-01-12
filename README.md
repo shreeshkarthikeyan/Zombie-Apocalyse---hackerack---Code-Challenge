@@ -1,1 +1,0 @@
-# Zombie-Apocalyse---hackerack---Code-Challenge
